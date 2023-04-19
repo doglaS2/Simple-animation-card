@@ -1,0 +1,1 @@
+![](https://github.com/doglaS2/Simple-animation-card/blob/master/cardmostruario.png)
